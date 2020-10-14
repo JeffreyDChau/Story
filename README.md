@@ -15,3 +15,11 @@ He paddled and paddled to no avail.
 Until a magical beast gave out a wail.
 The beast saved the man with his hats.
 He befriended the beast using his head pats.
+
+The sea dragon purred, but said not a word.
+Accepting his affection as it set off in an upwards direction.
+Higher, and higher, and higher they flew.
+The hat man wondered if he accidentality sniffed glue.
+
+Far down below the mountain ranged roamed, 
+and thats where he spotted where the magical hat called home.
