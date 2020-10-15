@@ -32,3 +32,10 @@ Being desolved slowly and his bones burning from the inside.
 He shrugs it off and continues to climb the mountain.
 Arriving at the foot of where he once fell. 
 Being prepared he made it half way to the top of the mountain.
+
+If only I had a weapon as mad as this situation, he thought.
+"Oh wait!" The man shouted, and he stooped on the ground.
+He took of his hats, and he punged his arms into the caps. 
+The hat was filled with an infinite void, but infinite voids means infinite storage. 
+Swirling his fingers around, his hand grazed something metal and cool.
+Out of the hat he pulled a word laiden in jewels. 
