@@ -55,3 +55,10 @@ Now he must head towards the final battle for hat supremacy at Heavens peak.
 Dio smirked as the hatted man neared him.
 "Oh, so you're appoaching me?" He baited. "Instead of running away you're coming right to me?"
 Dio bared his inhuman fangs and took his stance.
+
+"Who are you?" He walks slowly towards Dio.
+One side effect of the devil fruit is temporary amnesia and stupidity.
+Dio stabbed the man and he passed out.
+The man woke up where he took a bite of the apple.
+He does not remember what happened to him after he awakened his power.
+The man is unaware of his own powers.
