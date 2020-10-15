@@ -51,3 +51,7 @@ Little did he know, he ate a devil fruit. This means he can no longer swim but t
 His devil fruit is called the hat hat fruit, which allows him to spawn hats using command controls.
 Spawn he did, spawning hats of all kind. However little did he know that his brother Dio also ate an devil fruit.
 Now he must head towards the final battle for hat supremacy at Heavens peak.
+
+Dio smirked as the hatted man neared him.
+"Oh, so you're appoaching me?" He baited. "Instead of running away you're coming right to me?"
+Dio bared his inhuman fangs and took his stance.
