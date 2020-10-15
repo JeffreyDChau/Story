@@ -38,4 +38,11 @@ If only I had a weapon as mad as this situation, he thought.
 He took of his hats, and he punged his arms into the caps. 
 The hat was filled with an infinite void, but infinite voids means infinite storage. 
 Swirling his fingers around, his hand grazed something metal and cool.
-Out of the hat he pulled a word laiden in jewels. 
+Out of the hat he pulled a sword laiden in jewels. 
+
+As he pulled out the sword from the hat, an arrow hit his head.
+He woke up screaming laying on the ground halfway to the top of the mountain.
+The man then remembers the pain but he realized his body is still in tact.
+He then pulled out the sword and stayed alert.
+A tree full of apples were spotted and he noticed he has not eaten for days.
+He took a bite of an apple and it awakened his secret power.
