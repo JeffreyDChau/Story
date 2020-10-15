@@ -26,3 +26,9 @@ and thats where he spotted where the magical hat called home.
 He spotted a red mountain dragon.
 The red mountain dragon lunged at him and ate him.
 Next thing he knows, he is back to where he started at the foot of the mountain.
+
+The man wondered what happened. His hat was still there but his body remembers the pain. 
+Being desolved slowly and his bones burning from the inside.
+He shrugs it off and continues to climb the mountain.
+Arriving at the foot of where he once fell. 
+Being prepared he made it half way to the top of the mountain.
