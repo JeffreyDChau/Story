@@ -46,3 +46,8 @@ The man then remembers the pain but he realized his body is still in tact.
 He then pulled out the sword and stayed alert.
 A tree full of apples were spotted and he noticed he has not eaten for days.
 He took a bite of an apple and it awakened his secret power.
+
+Little did he know, he ate a devil fruit. This means he can no longer swim but this gave him powers.
+His devil fruit is called the hat hat fruit, which allows him to spawn hats using command controls.
+Spawn he did, spawning hats of all kind. However little did he know that his brother Dio also ate an devil fruit.
+Now he must head towards the final battle for hat supremacy at Heavens peak.
