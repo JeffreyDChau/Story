@@ -62,3 +62,11 @@ Dio stabbed the man and he passed out.
 The man woke up where he took a bite of the apple.
 He does not remember what happened to him after he awakened his power.
 The man is unaware of his own powers.
+
+All the man remembered was every instance of his deaths.
+Being revived multiple times, betrayed by his own brother and eaten by an dragon had broken the hat man.
+Walking back to his village he remembers Rem and Donkey before
+his brother killed them, he lets out an cry and 
+the man yells out "I AM SHREK, LAST MEMBER OF THE SWAMP FAMILY, I WILL AVENGE DONKEY".
+His stand "All stars" had just awoken and with his final power awoken he finds the resolve to confont Dio again.
+He tips his fedora and sets off again.
