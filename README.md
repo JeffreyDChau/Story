@@ -70,3 +70,9 @@ his brother killed them, he lets out an cry and
 the man yells out "I AM SHREK, LAST MEMBER OF THE SWAMP FAMILY, I WILL AVENGE DONKEY".
 His stand "All stars" had just awoken and with his final power awoken he finds the resolve to confont Dio again.
 He tips his fedora and sets off again.
+
+"Shrek" races back up the mountain to where Dio one stood. Powerful swamp 
+energy coursing through his veins. Music swelled from seeinging nowhere, the sound of Smash
+Mouth made the mountain side shake. Dio's eyes widned as Shrek approached, 
+filled with fear as the man took orger form and raised his mighty fist 
+to strike him.
