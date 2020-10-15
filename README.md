@@ -23,3 +23,6 @@ The hat man wondered if he accidentality sniffed glue.
 
 Far down below the mountain ranged roamed, 
 and thats where he spotted where the magical hat called home.
+He spotted a red mountain dragon.
+The red mountain dragon lunged at him and ate him.
+Next thing he knows, he is back to where he started at the foot of the mountain.
