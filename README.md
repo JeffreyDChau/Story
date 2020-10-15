@@ -76,3 +76,8 @@ energy coursing through his veins. Music swelled from seeinging nowhere, the sou
 Mouth made the mountain side shake. Dio's eyes widned as Shrek approached, 
 filled with fear as the man took orger form and raised his mighty fist 
 to strike him.
+
+Shrek's mighty fist grew 10x as he punches the ground.
+The impact caused an 8.0 magnitude earthquake.
+The cries of the people all over the city can be heard.
+Dio sunk into the middle of the earth.
